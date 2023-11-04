@@ -1,4 +1,4 @@
-### Hi there 👋
+### Goal driven , ambitious , and enthusiast when it comes to technology and computers . 
 
 <!--
 **Skinnygoose/Skinnygoose** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
